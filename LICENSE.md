@@ -1,4 +1,4 @@
-# 
+# Actualizado 30+ AI Projects at UQAC temas. Con optimización de modelos y detección de objetos — optimizado para el máximo rendimiento.
 
 
 
